@@ -1,1 +1,0 @@
-# Healthcare-Check-AI
